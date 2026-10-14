@@ -1,1 +1,1 @@
-# Emil---historie-pocitacu
+# historie
